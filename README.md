@@ -7,4 +7,3 @@
 - 📫 Contate-me no email: julianasdomingues02@gmail.com
 - 😄 Pronouns: ela/dela
 
-
