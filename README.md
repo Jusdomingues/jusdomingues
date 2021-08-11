@@ -3,7 +3,7 @@
 
 
 - 🔭 Hoje trabalho como analista de TI, lidando com Help Desk 
-- 🌱 Estou estudando front-end
+- 🌱 Estou  me formando em Análise e Desenvolvimento de Sistemas
 - 📫 Contate-me no email: julianasdomingues02@gmail.com
 - 😄 Pronouns: ela/dela
 
